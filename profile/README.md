@@ -1,1 +1,1 @@
-## Learn [YOUR INTEREST] in 100 days!
+Master [TECH] in 100 days!
